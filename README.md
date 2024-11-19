@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Elcira Ibarra 
+### Hi there 👋
 
 
 - 🌱 I’m currently learning at Platzi...
